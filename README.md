@@ -1,1 +1,1 @@
-# squimicvo
+# squemico
